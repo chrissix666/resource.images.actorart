@@ -5,7 +5,7 @@ https://linktr.ee/RedCarpetCandy
 
 https://www.deviantart.com/redcarpetcandy
 
-https://kodi.tv/addons/omega/resource.images.actorart/
+https://kodi.tv/addons/omega/resource.images.actorart
 
 https://kodi.wiki/view/Add-on:Red_Carpet
 
